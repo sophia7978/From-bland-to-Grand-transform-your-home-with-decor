@@ -5,7 +5,7 @@ Is your living space feeling a little, indeed, blah? Do you stroll through the e
 
 ## Finding Your Plan Voice
 
-Prior to plunging recklessly into paint patterns and tossing cushions, pause for a minute to consider what sort of climate you need to develop. Could it be said that you are attracted to the spotless lines of current plan, the comfortable solace of farmhouse style, or the diverse appeal of bohemian living? Scour inside plan magazines, peruse online motivation sheets (like Pinterest! ), and even visit companions with homes you decorate. Focus on the components that impact you - variety ranges, furniture styles, and by and large energies.
+Prior to plunging recklessly into paint patterns and tossing cushions, pause for a minute to consider what sort of climate you need to develop. Could it be said that you are attracted to the spotless lines of current plan, the comfortable solace of farmhouse style, or the diverse appeal of bohemian living? Scour inside plan magazines, peruse online motivation sheets (like Pinterest! ), and even visit companions with [homes](https://www.malimora.com/category/homeliving/) you decorate. Focus on the components that impact you - variety ranges, furniture styles, and by and large energies.
 
 ## The Sorcery of Paint
 
